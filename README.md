@@ -1,5 +1,5 @@
 # 💫 About Me:
-I love creating, learning, and collaborating on AI + web projects
+I love solving problems through learning, building, and collaborating.
 
 
 ## 🌐 Socials:
